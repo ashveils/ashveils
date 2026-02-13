@@ -1,3 +1,5 @@
+bruv it deleted half my shit lemme remake this shit
+
 **𓂁𓂄** ![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=969632&rightColor=6f8596&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀ ͜ all ***my*** info ***!!***
 <p align="center"> <sup><b><a href="https://x.com/egglovesdort">art credits</a>...　 ‎ my links˒</b> ‎  ‎  ‎ <a href="https://rentry.co/yaoshi">rentry</a> 　╱　　<a href="https://fluffle.cc/anaxa">other</a>　</sup> <br>
   <img src="https://i.postimg.cc/qqRGYFB5/20260205-025706.jpg"/>
@@ -7,3 +9,4 @@
 <img src="https://64.media.tumblr.com/c440567bd3ff07717b3085cedbc1034b/22611a9624a1f186-78/s250x400/540e7560a154f28b632681b9bc241659ddcd3ed5.gif"/><br> 
 <b> pony town shit, read okay...?</b> <br>
 C+H really ok with oomfs! I get bored of it easily if you're a stranger. but feel free to interact! ￬￬<br>
+https://fluffle.cc/lighthouse
