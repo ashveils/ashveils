@@ -3,6 +3,12 @@
   <img src="https://i.postimg.cc/GmfhVczC/Untitled3-20260214124821.png"/>
 <br><sub> 🌱.݁˖ : </sub> </a> frei/till/<a href="https://rentry.co/cannibalising">more</a>. <b>19</b> <sup>(15/07)</sup> . italian.<br>
 dni Anaxa/Ashveil yumes gomenasai
-<img src="https://64.media.tumblr.com/c440567bd3ff07717b3085cedbc1034b/22611a9624a1f186-78/s250x400/540e7560a154f28b632681b9bc241659ddcd3ed5.gif"/><br> 
+<img src="https://files.catbox.moe/6apcff.gif"/><br> 
 <b> pony town shit, read okay...?</b> <br>
-C+H really ok with oomfs! I get bored of it easily if you're a stranger. but feel free to interact! ￬￬<br>
+C+H ok with oomfs! I get bored of it easily if you're a stranger. I want to yaaap. but feel free to interact! I love interacting with new people. Just be normal...? ￬￬<br>
+<a href="https://fluffle.cc/lighthouse">read this if you gaf about my pony town.. boundaries?? something.</a>
+
+<p align="center"> <b>～ oomf wall !!!!!!჻჻჻჻჻</b> </p>
+
+<img src="https://i.postimg.cc/0jzSgtmX/NNGch-MBv-TUuxqo-PVj-IIh.png"/>
+made by oomf @/STARSAREFADINGAWAY.. LOOK AT MY WOFE!!! he's so gorgeous 
